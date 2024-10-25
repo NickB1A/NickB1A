@@ -1,4 +1,3 @@
-Odeio escola!! 😠
 
 
 
